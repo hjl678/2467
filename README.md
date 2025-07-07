@@ -27,4 +27,4 @@
 尽管这些平台提供免费的日本AV资源，我们仍然建议用户在访问时遵守当地的法律规定。所有推荐的平台都进行了年龄验证，确保只有符合观看资格的用户可以访问影片内容。此外，平台在页面中提供了合规性声明和免责声明，保障内容的合法性，让用户可以安心享受视频。
 
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/hjl678/2467 ）</span>
